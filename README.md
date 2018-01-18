@@ -11,6 +11,7 @@
 
 可以关注一下这个repo，如果可以，请在支付宝上请我喝一杯LCL橙汁
 
+（我很~可爱~，请给我钱）
 ![image](https://user-images.githubusercontent.com/1551736/34814780-db52f4f4-f6e9-11e7-8302-639889af27e6.png)
 
 
